@@ -2,7 +2,7 @@
 
 👀 Data Engineering and UI/UX Design have caught my attention lately. 
 
-<br/> Hit [kohionomu](discordapp.com/users/739151655605633075) up if you want to have further chats about those topics with me!
+<br/> Hit [kohionomu](https://discordapp.com/users/739151655605633075) up if you want to have further chats about those topics with me!
 
 <!---
 lilypon246/lilypon246 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
