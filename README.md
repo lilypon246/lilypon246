@@ -1,4 +1,4 @@
-👋 Hi, I’m @lilypon246, currently on my 2nd year of studying Information Engineering in DTETI FT UGM.
+👋 Hi, I’m @lilypon246, currently on my 3rd year of studying Information Engineering in DTETI FT UGM.
 
 👀 Data Engineering and UI/UX Design have caught my attention lately. 
 
