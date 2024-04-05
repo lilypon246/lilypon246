@@ -1,6 +1,6 @@
 👋 Hi, I’m @lilypon246, currently on my 3rd year of studying Information Engineering in DTETI FT UGM.
 
-👀 Data Analyst field and UI/UX Design have caught my attention lately. 
+👀 Data Analyst field, AI implementation, and UI/UX Design have caught my attention lately. 
 
 <br/> Hit [kohionomu](https://discordapp.com/users/739151655605633075) up if you want to have further chats about those topics with me!
 
